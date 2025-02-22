@@ -3,9 +3,9 @@ Are you looking for a method to get a free Amazon gift card? You're in the right
 
 Need a Free Amazon Gift Card? Just follow this link! 👇👇👇
 
-Click Here 👉👉 [✅✅ Get Your Free Gift Card ✅✅](https://rb.gy/9fw8j8)
+Click Here 👉👉 [✅✅ Get Your Free Gift Card ✅✅](https://rb.gy/pgjmt0)
 
-Click Here 👉👉 [✅✅ Get Your Free Gift Card ✅✅](https://rb.gy/9fw8j8)
+Click Here 👉👉 [✅✅ Get Your Free Gift Card ✅✅](https://rb.gy/pgjmt0)
 
 ## What is an Amazon Gift Card?
 
